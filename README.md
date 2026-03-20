@@ -12,4 +12,3 @@ iwc PLEASE 🙏 (go check my pronouns.cc page for more info about it or ask me i
 
 #💗 im also an.. | Ambiverted ! | ENTP (i use truity) | Billingual :o |
 
-[https://files.catbox.moe/uem2g7.gif]
