@@ -11,5 +11,3 @@ iwc PLEASE 🙏 (go check my pronouns.cc page for more info about it or ask me i
 ✦ I am a Traditional and Dijital artist :0 i mostly draw on Paper when im bored, Dijital art is a little bit more complicated to explain –_–'
 
 #💗 im also an.. | Ambiverted ! | ENTP (i use truity) | Billingual :o |
-
-https://files.catbox.moe/uem2g7.gif
