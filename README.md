@@ -1,4 +1,4 @@
-「 I can't upload photos deal with decortive text for now 」
+「 I can't upload photos for now 」
 
 \(*´▽｀*) /  HAII !! Pleasure to 'meat' you <3
 
