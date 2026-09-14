@@ -1,7 +1,7 @@
  (*´▽｀*)  HAII !! Pleasure to 'meat' you <3
 
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=&weight=500&pause=1000&color=F70094&vCenter=true&width=550&height=20&lines=%22I+want+some+asshole+to+tell+me+im+pretty;I+wish+that+the+internet+could+actually+love+me;I+wish+that+i+could+enjoy+the+attention;I+wish+that+i+needed+nothing+from+no+one;She+wont+fuck+you+and+you're+so+mad%2C+but;None+of+you+bastards+would+make+a+good+dad;Look+at+my+body%2C+don't+look+at+my+face;Please+dont+leave+me%2C+please+stay+away%22)](https://git.io/typing-svg)
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Cormorant+Garamond&pause=1000&color=F7E5F6&width=600&height=100&lines=%22cut+my+hair+and+then+i+cut+my+skin%22;%22hurt+myself+instead+of+hurting+him%22+...)](https://git.io/typing-svg)
+ 
 QUEENOFRAGE is PonyTowns Miu iruma!
 (idk how to put pictures in my readme just check the official pt github)
 
