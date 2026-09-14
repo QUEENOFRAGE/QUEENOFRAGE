@@ -5,7 +5,7 @@
 QUEENOFRAGE is PonyTowns Miu iruma!
 (idk how to put pictures in my readme just check the official pt github)
 
- ▪︎ Current Profile Theme : Miu iruma (DanganronpaV3 : Killing Harmony)
+ ▪︎ Current Profile Theme : Ame-chan (Needy Streamer Overload)
 
 | pink lover <3 | item collector !! | Tomboy >:D | Ambiverted ! | ENTP (i use truity) | Billingual |
 
