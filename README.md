@@ -7,7 +7,7 @@ QUEENOFRAGE is PonyTowns Miu iruma!
 
  ▪︎ Current Profile Theme : Ame-chan (Needy Streamer Overload)
 
-| pink lover <3 | item collector !! | Tomboy >:D | Ambiverted ! | ENTP (i use truity) | Billingual |
+| pink lover <3 | item collector !! | Tomboy >:D | Ambiverted ! | ENTP | Billingual |
 
 im in MANY fandoms, feel free to yapp ur interests and reccomend stuff (*^^*)
 
