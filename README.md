@@ -1,6 +1,6 @@
  (*´▽｀*)  HAII !! Pleasure to 'meat' you <3
  
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Cormorant+Garamond&pause=1000&color=F7E5F6&width=600&height=100&lines=%22cut+my+hair+and+then+i+cut+my+skin%22;%22hurt+myself+instead+of+hurting+him%22+...)](https://git.io/typing-svg) 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=980&pause=5&color=F700CB&width=435&lines=I'LL+HEX+YOU!;I'LL+POSSES+YOU!;YOU'LL+BEG+ME+TO+COME+SEX+YOU!;UNDRESS+ME!;CARESS+ME!;I+JUST+WANT+YOU+TO+FUCK+ME!)](https://git.io/typing-svg)
 
 QUEENOFRAGE is PonyTowns Miu iruma!
 (idk how to put pictures in my readme just check the official pt github)
