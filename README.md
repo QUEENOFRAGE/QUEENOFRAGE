@@ -5,7 +5,7 @@ QUEENOFRAGE is PonyTowns Miu iruma!
 
  ▪︎ Current Profile Theme : Hange Zoe (AOT)
 
-| pink lover <3 | Tomboy >:D | Ambiverted ! | ENTP | Billingual |
+| Tomboy | Artist and Writer | ENTP |
 
 im in MANY fandoms, feel free to yapp ur interests and reccomend stuff (*^^*)
 
